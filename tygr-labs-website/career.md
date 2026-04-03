@@ -59,6 +59,9 @@ Celebrating Your Outstanding Contributions!
 Celebrate achievements through employee recognition programs, acknowledging outstanding contributions.
 
 Job Openings
+Marketing
+Operations
+Tech
 Didn't Find the Perfect Fit? Let's Create It Together! 
 Tell us what you bring to the table
 Upload CV (Required)
